@@ -25,3 +25,5 @@
 [Vimeo](https://vimeo.com/johannlilly)
 
 [Instagram](https://instagram.com/johannlilly)
+
+[Scrum Alliance](https://www.scrumalliance.org/community/profile/jlilly3)
