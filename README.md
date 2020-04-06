@@ -11,6 +11,10 @@
 - [Upwork](https://www.upwork.com/o/profiles/users/~010a9f73d009677bd9/)
 - [About.me](https://about.me/johannlilly)
 
+## Credentialing
+
+- [Accredible](https://www.credential.net/profile/johnlilly905/wallet)
+
 ## Social Media
 
 - [Facebook](http://facebook.com/johannlilly0/)
