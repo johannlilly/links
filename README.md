@@ -14,6 +14,7 @@
 ## Credentialing
 
 - [Accredible](https://www.credential.net/profile/johnlilly905/wallet)
+- [Acclaim](https://www.youracclaim.com/users/johann-lilly/badges)
 
 ## Social Media
 
